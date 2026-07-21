@@ -5,12 +5,4 @@
 
   
     
-##### 　 [atabook]()    　　　　　　　　✚　　　　　　　　 [ccard](https://asenceofsortsinkongsvinger.carrd.co)　
-<p align="center"
-
-<img
-        src="" 
-        width=40%
-        title="My Image"
-        alt="My Image" >
-<p align="center"
+##### 　 [atabook]()    　　　　　　　　✚    　　　　　　　　[ccard](https://asenceofsortsinkongsvinger.carrd.co)　
